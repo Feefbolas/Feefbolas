@@ -2,8 +2,8 @@
 ![imagem](https://pa1.narvii.com/6526/3da2cffa23d28b81710a81719f9e4bef84debc3e_hq.gif)
 
 Eu sou <strong>Feefbolas</strong>, <strong>nerd</strong> 👨🏻‍💻 
-![image](https://github.com/Feefbolas/Feefbolas/assets/164874979/d7b4ec27-2952-449e-b942-a4f9e401a23d)
 
+![binding-of (1)](https://github.com/Feefbolas/Feefbolas/assets/164874979/4c83a28c-6e0f-4832-9106-30841f2a6315)
 
 
 - 🚀 Atualmente estou aprendendo: <strong>javascript</strong> 
